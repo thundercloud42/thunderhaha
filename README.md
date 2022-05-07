@@ -1,4 +1,4 @@
-- Hi, I’m thunderhaha
+- Hi, I’m thunderhaha/thundercloud
 - I’m interested in gaming and music
 - I’m currently learning stuff
 - How to reach me ... send me a dm on discord (when i'm online ofc) (thunderhaha#3912)
